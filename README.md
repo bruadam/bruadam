@@ -1,1 +1,2 @@
-*"Building a sustainable future, one project at a time."*
+*"In order for the past to be mine, I must make it mine again each instant by taking it towards my future"*
+Simone de Beauvoir
